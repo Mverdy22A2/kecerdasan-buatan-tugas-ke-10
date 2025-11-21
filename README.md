@@ -1,0 +1,1 @@
+# kecerdasan-buatan-tugas-ke-10
